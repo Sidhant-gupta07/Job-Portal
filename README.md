@@ -67,5 +67,5 @@ Feel free to reach out if you have any questions or suggestions:
 
 ---
 
-Thank you for visiting my portfolio!
+Thank you !
 
